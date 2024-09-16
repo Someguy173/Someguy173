@@ -1,0 +1,5 @@
+- Yo I'm someguy173, a straight white male
+- I love incremental games and badge hunting
+- I’m currently working on learning roblox studio and luau as well as python
+- someguy173 on discord
+- Link to my accomplishments (not made yet fuck you)
